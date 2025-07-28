@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **patelm2606@gmail.com**
 
-- ⚡ Fun fact **I'm a photographer and astronomy enthusiast**
+- ⚡ Facts **I'm a photographer and astronomy enthusiast**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
